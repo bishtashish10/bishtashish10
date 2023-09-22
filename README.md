@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @bishtashish10
-- 👀 I’m interested in coding.
+- 👀 I’m interested in learning coding.
 - 🌱 I’m currently pursuing BCA.
 - 💞️ I’m looking to collaborate with Big companies.
 - 📫 How to reach me just talk to me.
